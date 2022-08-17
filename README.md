@@ -1,4 +1,4 @@
-### Hello this is my github page lol
+### Pretty dead lmao
 
 <!--
 **chinh4thepro/chinh4thepro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
